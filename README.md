@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @pannalalpurbiya
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+pannalalpurbiya/pannalalpurbiya is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+hdh-2n djwiqo4"4hks is
+ajdke+4msloa 279
+run out of my life with me 
